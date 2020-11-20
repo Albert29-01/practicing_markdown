@@ -21,4 +21,4 @@ El paquete Z28 fue reintroducido a mediados de año 1977 y, en gran parte como r
 
 Los modelos Z28 1980 y 1981 incluyen una toma de aire de inducción con una puerta de admisión que abren el acelerador a fondo.
 
-<span style="color:blue">some *blue* text</span>
+![2018 Camaro Coupe](https://www.chevrolet.com.ar/content/dam/chevrolet/mercosur/argentina/espanol/index/performance/2018-camaro-coupe/colorizer/01-images/son-of-a-gun-gray-metallic.png?imwidth=600)
