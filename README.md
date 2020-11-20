@@ -21,4 +21,22 @@ El paquete Z28 fue reintroducido a mediados de año 1977 y, en gran parte como r
 
 Los modelos Z28 1980 y 1981 incluyen una toma de aire de inducción con una puerta de admisión que abren el acelerador a fondo.
 
+## 2018 Camaro Coupé
+
 ![2018 Camaro Coupe](https://www.chevrolet.com.ar/content/dam/chevrolet/mercosur/argentina/espanol/index/performance/2018-camaro-coupe/colorizer/01-images/son-of-a-gun-gray-metallic.png?imwidth=600)
+
+![Interior](https://www.chevrolet.com.ar/content/dam/chevrolet/mercosur/master/portuguese/index/performance/2018-camaro-coupe/gallery/interior/01-images/interior-painel-novo-camaro-cupe-2018-int-14.png?imwidth=420)
+
+![Interior1](https://es.chevrolet.com/content/dam/chevrolet/na/us/english/index/vehicles/2021/performance/camaro/mov/01-images/2021-camaro-design-04-v2.jpg?imwidth=420)
+
+## Detalles interiores.
+Cada detalle, desde los instrumentos precisos a la sensación de la palanca de cambios al tacto, crea una experiencia de manejo única.
+
+Entre las opciones disponibles, se incluye:
+- Asientos delanteros con calefacción y ventilación
+- Asientos deportivos RECARO®
+- Asientos con mecanismo eléctrico y paquete Memory
+- Cinturones de seguridad en Rojo
+- Volante con calefacción
+- Volante y palanca de cambios en microfibra gamuzada
+- Pedales de aluminio
